@@ -8,8 +8,8 @@ compiled by 3 members;
   
 2.NAME   : SULEIMAN KHAN
 
-  REG NO :
+   REG NO :
   
 3.NAME   :
 
-  REG NO :
+   REG NO :

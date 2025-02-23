@@ -6,9 +6,9 @@ compiled by 3 members;
 
   REG NO : COM/B/01-00098/2023
   
-2.NAME   : SULEIMAN KHAN
+2.NAME   : SULEIMAN OMAR
 
-   REG NO :
+   REG NO :COM/B/01-00149/2023
   
 3.NAME   :
 

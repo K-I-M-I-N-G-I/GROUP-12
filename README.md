@@ -10,6 +10,6 @@ compiled by 3 members;
 
    REG NO :COM/B/01-00149/2023
   
-3.NAME   :
+3.NAME   :Sande Konde
 
-   REG NO :
+   REG NO :COM/B/01-00120/2023
